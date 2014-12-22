@@ -36,95 +36,964 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The vertuose boke of distyllacyon of the waters of all maner of herbes with the fygures of the styll
+
+1. ¶The Prologue of Laurence andrew the Tranſlatour•.
+
+1. ¶Robertus Huetus ad Lectorē
+
+1. THeſe be the chapytres of the ſeconde
+parte of the fyrſte boke
+in the which chapytres ye ſhall fynde the
+maner and ſcyēce of dyſtyllacyōs
+
+1. ¶Here after foloweth the table of the
+names of the herbes
+
 #####Body#####
 
-1. Of the water of leues
+1. ¶Here begynneth the fyrſt part of this
+o•e / wher in is comprehendyd the noble
+ſcyence & the trewe dyſtyllacyons of
+waters / and other dyuers thynges arty••cyallys
 
-1. Water of fruytes or beryes.
+    _ ¶The fyrſte chaptre ſhewyth what dyſtyllacyon
+is. Ca. i.
 
-1. Water of comon hete
+    _ ¶Wherfore dyſtyllynge is founde and
+ordeynened Ca. ii.
 
-1. ¶Of waters of moyſty nature.
+    _ ¶In howe many maners may be
+dyſtylled Ca. iii.
 
-1. Of rotes waters that be hote of nature
+    _ ¶What inſtrumentys be neceſſarye or
+nedefull vnto thys worke.
 
-1. Of all ſuche waters that be dyſtylled / 
+    _ ¶Howe that ye ſholde make the ſtones / 
+claye / or lutum that belongeth to theſe
+workes. Ca. v.
+
+    _ ¶How ye ſhall make the comon fornays
+that belongeth to this worke. Ca. v.
+
+    _ ¶How ye ſhal dyſtylle in ſande / named
+dyſtyllacyo per arenam.
+
+    _ ¶How ye ſhall ordir or prepare your inſtrumentys
+where as your waters ſhall
+be dyſtylled & alſo kepte. Ca .vi.
+
+    _ ¶Now ye ſhal dyſtylle thrugh a fylte named
+per fultrum diſtillacio. Ca .viii.
+
+    _ ¶How ye ſhall dyſtylle in the ſonne named
+per ſolis diſtilacionem. Ca .ix.
+
+    _ ¶How ye ſhall dyſtyl in hote brede with
+man ouen / named per panis diſtillationem.
+
+    _ ¶How ye ſhall dyſtylle in horſe downge
+named perfimum equorum dyſtyllatio.
+Capitulum xi.
+
+    _ ¶How ye ſhall dyſtylle in a pyſſme• hyl
+named ꝑformyce diſtillacionem. Ca .xii.
+
+    _ ¶How ye ſhall dyſtyll in bolneō marie
+•amed per balneum marie / o• in 〈◊〉 Ca .xiii.
+
+    _ How you ſhall dyſtylle in the horſe bely
+named dyſtyllatio per venteem equi ī latyn.
+Ca .xiiii.
+
+    _ ¶How ye ſhall dyſtylle in aſſhes / named
+Dyſtyllacyo per Sineris Ca .xv
+
+    _ ¶How ye ſhall dyſtyll in the ſande / named
+diſtillacio per arenam ca .xvi.
+
+    _ ¶How ye ſhall frely by••ylle on the fyet
+with a wynde ouyn / named diſtilacio ꝑ ignem Cap .xvii.
+
+    _ ¶How ye ſhall dyſtylle in comon ſtyllatoryes / 
+named Roſgarlādys or helmets
+as here is fygured. Ca .xviii.
+
+    _ ¶How you ſhall dyſtylle in general eche
+accordynge to his nature. Ca .xix.
+
+    _ ¶How ye ſhall dyſtylle & make waters
+of drye herbes / floures / and rotes / whan
+the grene can not be gotten. Ca .xx.
+
+    _ ¶How ye ſhall rectyfye your waters after
+they haue ben dyſtyllyd. Ca .xxi.
+
+    _ ¶How and wher the dyſtylled waters
+owght to be kepte. Ca. xxii
+
+    _ ¶Here after foloweth how lōge ye may
+kepe youre dyſtylled waters and whan
+they muſt be poured or caſt away.
+Capitulum. .xxiii.
+
+    _ ¶How longe the waters may be kepte
+in ſubſtaunce.
+
+      * Of the water of leues
+
+      * Water of fruytes or beryes.
+
+      * Water of comon hete
+
+    _ ¶Of colynge waters.
+
+    _ ¶Of the hote and dry herbes of nature
+
+      * ¶Of waters of moyſty nature.
+
+      * Of rotes waters that be hote of nature
+
+      * Of all ſuche waters that be dyſtylled / 
 of beſtes / fowles / vermyn or wormys.
+¶Here after foloweth the regiſtre of the
+table of the ſeconde boke of the herbes / &
+to fynde the wa
+    _ ¶Here after foloweth the regiſtre of the
+table of the ſeconde boke of the herbes / &
+to fynde the waters agaynſte all maner
+of ſekeneſſes and infytmytees.
 THe fyrſte ꝑte ſheweth
 with what
 maner of waters
 the helth of man is to be
 preſeruyd. And in this
 fy
-1. For the hede.
+      * For the hede.
 
-1. ¶For the heres.
+      * ¶For the heres.
 
-1. ¶For the iyen▪
+      * ¶For the iyen▪
 
-1. To the eares.
+      * To the eares.
 
-1. ¶For the face.
+      * ¶For the face.
 
-1. ¶For the noſe.
+      * ¶For the noſe.
 
-1. ¶Of the mouthe.
+      * ¶Of the mouthe.
 
-1. ¶Of the voyce
+      * ¶Of the voyce
 
-1. ¶Of the harte.
+      * ¶Of the harte.
 
-1. ¶For the lyuer.
+      * ¶For the lyuer.
 
-1. ¶For the longues.
+      * ¶For the longues.
 
-1. ¶For the mylte.
+      * ¶For the mylte.
 
-1. ¶For the bely.
+      * ¶For the bely.
 
-1. ¶For the bladder
+      * ¶For the bladder
 
-1. ¶For the ſecrete places.
+      * ¶For the ſecrete places.
 
-1. For the outwarde membres
+      * For the outwarde membres
 
-1. ¶For the ſynuwes.
+      * ¶For the ſynuwes.
 
-1. Agaynſt the onclennes of
+      * Agaynſt the onclennes of
 the blode.
 
-1. For woundes.
+      * For woundes.
 
-1. For open ſores
+      * For open ſores
 
-1. Agaynſt ſwellynge and
+      * Agaynſt ſwellynge and
 impoſtumacyons.
 
-1. Of hurtyng and hytyng
+      * Of hurtyng and hytyng
 
-1. Agaynſt the ſores.
+      * Agaynſt the ſores.
 
-1. ¶Agaynſte the froſte.
+      * ¶Agaynſte the froſte.
 
-1. Agaynſt. venym
+      * Agaynſt. venym
 
-1. Agaīſt the axces or ague
+      * Agaīſt the axces or ague
 
-1. For the ſecrete thīges of
+      * For the ſecrete thīges of
 the man.
 
-1. Agaynſt the dyſſeaſes of
+      * Agaynſt the dyſſeaſes of
 women
 
-1. HEre begynneth the
+      * HEre begynneth the
 xxxi. parte & ſheweth
 ſome vertues of waters
 but not belongynge
 to the body of man.
 
+    _ ¶The prologue of this preſent
+boke of dyſtyllacyon.
+
+    _ ¶The fyrſte chapytre ſheweth of the
+water Marubium. The fyrſte chapytre.
+
+    _ ¶Sorell water Ca. iii
+
+¶The water of the herbe
+Sorell.
+
+    _ ¶Of viſcus water. Ca .iii.
+
+    _ Of Ebulꝭ or walwort water. ca. iiii
+
+    _ ¶Of Enula campana water. ca .v.
+
+    _ ¶Of Enula Campana rote. ca .vi.
+
+    _ ¶Of Egrymonye water. Ca .vii.
+
+    _ ¶Of columbine water Ca. viii
+
+    _ ¶Of Endyue water.
+
+    _ ¶Of •okow pyntell water. Ca .x.
+
+    _ ¶Of Mandrake water. Ca .xi.
+
+    _ ¶Of Angelyca water Ca .xii
+
+    _ ¶Of the deuyls byte water. Ca .xiii
+
+    _ ¶O• pyes water. Ca .xiiii.
+
+    _ ¶Duckys blode water. Ca. xv
+
+    _ ¶Of borage 〈◊〉 Ca .xvii
+
+    _ ¶Of the water of borage floures.
+Capitulum .xvii.
+
+    _ The water of Henguale. ca .xviii.
+
+    _ ¶Of water of floure deluce purpur•
+Capitulum xix.
+
+    _ ¶Of the water of the rote of floure
+deluce purpure Ca .xx.
+
+    _ ¶Water of the ſedes of floure deluce
+purpure Ca .xxi.
+
+    _ ¶Of the byrtche Iuce water.
+Capitulum .xxiii.
+
+    _ ¶The water of Scrofularia.
+Capitulum xxiiii.
+
+    _ ¶Of the water of 〈◊〉.
+Capitulum .xxv.
+
+    _ ¶Of the water of burnet. Ca .xxvi.
+
+    _ ¶Of the water of wylde peruynke.
+Ca .xxvii.
+
+    _ ¶Of the water of the floures of wyde
+peruynke. Ca .xxviii.
+
+    _ ¶Of the water of watere ereſſe
+Capitulum xxix.
+
+    _ ¶Of water of rede mynts / or 〈…〉
+Ca. xxx
+
+    _ ¶Of vngula raballium water.
+Capitulum xxxi
+
+    _ Of water of bene flowres ca .xxxii.
+
+    _ Of water of benes. Ca .xxxiii
+
+    _ Of water benehuſkes. ca. xxxiiii
+
+    _ Of the herbe of benes. Ca .xxxv
+
+    _ Water of greate beſilicō Ca .xxxvi.
+
+    _ ¶Water of Baſilicon Gariofilata.
+Capitulam xxxvii.
+
+    _ ¶Water of blewe. Maye floures.
+Capitulum. .xxxviii.
+
+    _ ¶Water of buckes blode. ca .xxxix
+
+    _ Water of bottys of the bramell. ca .xl
+
+    _ ¶Betonye water. Ca .xli.
+
+    _ ¶Water of echen leues. Ca .xlii.
+
+    _ ¶Water of barba hircina.
+Capitulum .xliii.
+
+    _ ¶Sater of blacke beryes Ca .xliiii
+
+    _ ¶Water of poley. Ca .xlv.
+
+    _ Of the blew rye floures Ca .xlvi.
+
+    _ Water of blewe byoltetys. Ca .xlvii.
+
+    _ Of moder wort water. Ca .xlviii.
+
+    _ ¶Greate plantayn water. Ca .xl••.
+
+    _ Great plātayn ſedes water. Ca .l.
+
+    _ Water of great plantayn flowres.
+Capitulum .li.
+
+    _ Water of gariofilata Ca .lii.
+
+    _ Water of parſneppes. Ca .liii.
+
+    _ ¶Water of Malue. Ca .liiii.
+
+    _ ¶Water of malue floures. Ca .lv.
+
+    _ Water of Brunelle. Ca .lvi.
+
+    _ ¶Water of mercury. Ca .lvii.
+
+    _ ¶Water of the herbe of camomell.
+Capitulum. .lviii.
+
+    _ Water of Cardo benedictus. Ca .li•
+
+    _ ¶The water of Rubea Ca .lx.
+
+    _ ¶Water of Scatum celle. Peny
+worte Ca .lxi.
+
+    _ The water of the lytell brennynge
+Nytetls Ca .lxii.
+
+    _ ¶Water of whyte betes. Ca .lxiii.
+
+    _ ¶Water of Centory Ca .lxiiii
+
+    _ ¶Water of fumitory• Ca .lxv.
+
+    _ Water of valeryan. Ca .lxvi.
+
+    _ Water of valeryan rotes Ca .lxvii.
+
+    _ ¶Water of Dylls
+Capitulum lxviii.
+
+    _ ¶Water of Grayes blode. Ca .lxix.
+
+    _ ¶Water of dede nettles Ca .lxx.
+
+    _ ¶Water of Dyptan Ca .lxxi
+
+    _ ¶Water of Scariola Ca .lxxii
+
+    _ ¶Water of ſtrawberyes Ca .lxxiii.
+
+    _ ¶The water of the ſtrawberyes
+herbe. Ca .lxxiiii
+
+    _ ¶Water of the leues of an oke
+Capitulum lxxv.
+
+    _ ¶Water of polypody. Ca .lxxvi
+
+    _ ¶Water of fungus. Ca .lxxvii.
+
+    _ ¶Water of Abſtronum Ca .lxxviii.
+
+    _ ¶Water of Veronica Ca .lxxix.
+
+    _ ¶Of the water of Anys.
+Capitulum. lxxx.
+
+    _ ¶Of the water of Apium.
+Capitulum. lxxxi.
+
+    _ ¶Water of 〈◊〉 Ca .lxxxii.
+
+    _ ¶Water of the blode of an ast
+Capitulum lxxxiii
+
+    _ ¶Water of Centun morbia
+Capitulum lxxxiiii.
+
+    _ ¶Water of pyſemer or piſmer egges.
+Ca .lxxxv.
+
+    _ ¶Of pyſmer egges. Ca .lxxxvi
+
+    _ ¶Of the whyte of a egge.
+Capitulum .lxxxvii.
+
+    _ ¶Water of the yolkes of egges
+Capitulum .lxxxviii.
+
+    _ ¶Water of Geneyan. Ca .lxxxix.
+
+    _ ¶The leues of the Aſſhen tree.
+Capitulum lxxxix
+
+    _ ¶Of Fenell herbe water Ca .xc.
+
+    _ ¶The water of our lady thyſtell
+Capitulum .xcii.
+
+    _ Water of rede Saxyfrage Ca .xciii.
+
+    _ ¶The water of Yacea
+Capitulum .xciii.
+
+    _ ¶Water of cynke foyle.
+Capitulum xcv.
+
+    _ ¶Water of frogges Ca .xcvi.
+
+    _ ¶Water of teſtriculus ſacerdotis.
+Capitulum .xcvii.
+
+    _ ¶Water of lingua auis. Ca .xcviii.
+
+    _ ¶Water of the herbe roberti.
+Capitulum .xcix.
+
+    _ ¶Water of gotes mylke,
+Capitulum c
+
+    _ ¶Water of batley Ca .ci.
+
+    _ ¶Water of auticula muris / named
+gagell. Ca .cii.
+
+    _ ¶Water of Conſolide media.
+Capitulum c .iii.
+
+    _ ¶Vater of walwortor Camfrey
+Capitulum .ciiii.
+
+    _ Of medtacle or Gammdre.
+Capitulum Ca .cv.
+
+    _ ¶Water of the wylde Tanſey.
+Capitulum cvi.
+
+    _ ¶Water of wylde tanſey floures.
+Capitulum cvii.
+
+    _ ¶Water of the grounde 〈◊〉.
+Capitulum cviii.
+
+    _ ¶The water of yelowe vyolettes.
+Capitulum cix.
+
+    _ ¶Water of yatowe. Ca .cx.
+
+    _ ¶Of lyuer worte. Ca .cxi
+
+    _ ¶Of yelowe Lylles. Ca .cxii.
+
+    _ ¶water of Creſſes. Ca .cxiii
+
+    _ ¶Water of Linacia Ca .c.xiiii.
+
+    _ ¶Water of the myddeſte rynde of
+ridre Ca .c.xv.
+
+    _ ¶Water of eldre. Ca .c.xvi.
+
+    _ Water of flowres of elder. Ca .c.xvii.
+
+    _ ¶water of dogges tōgue. Ca .xviii.
+
+    _ ¶Water of hempe Ca .c.xix.
+
+    _ ¶Water of hartes tongue. Ca .c.xx.
+
+    _ ¶Of hony water Cap .c.xxi
+
+    _ ¶Of houſleke water. Ca .c.xxii.
+
+    _ ¶Water of alnus. Cap .c.xx.iii.
+
+    _ ¶Water of Cowſlop Cap .c.xxiiii.
+
+    _ ¶Water of haſelnuttys.
+Capitu .c.xxv.
+
+    _ ¶Water of wylde Nardus
+Capitulum cxxvi
+
+    _ ¶Water of mawes of Polel.
+Capitulum. c.xxvii.
+
+    _ ¶Water of heth. Cap .cxxviii.
+
+    _ ¶Water of ſmerworte. Ca .cxxix.
+
+    _ ¶Water of Meron Bap. c.xxx.
+
+    _ ¶Water of henues. Cap .c.xxxi
+
+    _ ¶Water of hartes horne Ca .c▪xxxii.
+
+    _ ¶Water of the herbe of hoppes.
+Capitulum c.xxxiii.
+
+    _ ¶water of reſta bouis. Ca .c.xxxiiii.
+
+    _ ¶water of herba ſortis.
+Capitulum .c.xxxv.
+
+    _ ¶Water of dogges beryes.
+Capitulum .c.xxxvi.
+
+    _ ¶Water of Verbene Ca .cc.xxvii.
+
+    _ ¶Water of Alkakēgi Ca .c.xxxviii.
+
+    _ ¶Water of Yſope Ca .c.xxxix.
+
+    _ ¶Water of the herbe Mal••.
+Capitulum c.xl.
+
+    _ ¶water of the herbe Peruynke.
+Capitulum c.xli.
+
+    _ ¶Water of cardes. Ca .c.xlii.
+
+    _ ¶Of the water whiche is dyſtyllled
+of the water ſtandynge in the cardes
+Capitulum .c.xliii.
+
+    _ ¶Water of palacum and nat of Ceryſolum
+ſedes. Cap .c.xliiii.
+
+    _ ¶Water of Cheruell ca .c.xlv.
+
+    _ ¶Water of Garlyke Cap .c.xlvi.
+
+    _ ¶Water of traylles. Cap .c.xlvii.
+
+    _ ¶Water of Quynces. Ca .c.xlviii.
+
+    _ ¶Water of flowres of Quynces.
+Capitulum. c.xlix.
+
+    _ ¶Water of gowordes.
+Capitulum .c.l.
+
+    _ ¶Water of horſe tayle. Ca .c.li.
+
+    _ ¶Water of kowe torde
+Capitulo. c.lii.
+
+    _ ¶Water of kowes creme. Ca .c.liii.
+
+    _ ¶Water of Calfes blode. Ca .c.liiii.
+
+    _ ¶Water of calfes blode and longues
+to gyder Ca .c.lv.
+
+    _ Water of calfes lyuer. Cap .c.lvi.
+
+    _ ¶Water of Creuys▪ Ca .c.lvii.
+
+    _ ¶Water of rede corne roſes
+Capitulo. C.lviii.
+
+    _ ¶Water of wottes Ca .c.lxxix,
+
+    _ ¶Water of Capones. Ca .c.lx.
+
+    _ ¶Water of Lettys. Cap .c.lxi
+
+    _ ¶Water of Louage Cap .c.lxii.
+
+    _ ¶Water of bloſſom of Lynde wode.
+Capitulo. c.lxiii.
+
+    _ ¶Water of Lekes. Ca .c.lxiiii
+
+    _ ¶Water of Caprifolium / or wood
+bynde Cap .c.lxv.
+
+    _ ¶Water of lyuer wort. Cap .c.lxvi.
+
+    _ ¶Water of Lauendre.
+Capitulum c.lxvii.
+
+    _ Water of moder Worſte
+Capitulum c.lxviii.
+
+    _ ¶Water of May or parke floures.
+¶Capitulum c.lxix.
+
+    _ ¶Water of Cocombres. Ca .c.lxx.
+
+    _ ¶Water of Orpyn. Ca .c.lxxi.
+
+    _ ¶Water of Mariolayn. Ca .clxxii▪
+
+    _ ¶Water of mynte. Ca• .c.lxxiii.
+
+    _ ¶Water of the herbe of popye.
+Capitulum .c.lxxiiii.
+
+    _ ¶Water of Lyntyldewe / or duckes
+meate. Cap .c.lxxv.
+
+    _ ¶Water of the Maye dewe.
+Capitulium .c.lxxvi.
+
+    _ ¶Water of cow•lop. Ca .c.lxxvii.
+
+    _ Water of mannis blode.
+
+    _ ¶Water of mānys torde Ca .c.lxxix.
+
+    _ ¶Water of Sceſtroppe.
+Capitulum. c.lxxx.
+
+    _ ¶Water of maydē here Ca .c.lxxxi
+
+    _ Water of botter flowres.
+Capitulum c.lxxxii.
+
+    _ ¶Water of reed docke. Ca .c.lxxxiii.
+
+    _ ¶Water of 〈◊〉 Ca .c.lxxxiiii.
+
+    _ ¶Water of flyes Cap .c.lxxxv.
+
+    _ Water of molberyes. Ca .c.lxxxvi.
+
+    _ ¶Water of betes. Cap .c.lxxxvii.
+
+    _ ¶Water of Raffanus. ca .c.lxxxviii.
+
+    _ ¶Water of Melander wormes.
+Capitulum .c.lxxxix.
+
+    _ ¶Water of gromell Ca .c.xc.
+
+    _ ¶Water of Serpentyne or adde•
+tonge Ca .c.xci.
+
+    _ ¶Water of Nepte or eattes myntes.
+Capitulum c.xii.
+
+    _ ¶Water of Nightſhade
+Capitulum .c.xciii
+
+    _ ¶Water of grene wallnucles.
+Capitulum .c.xciiii.
+
+    _ ¶Water of the grene ſhales of walnuttes.
+Cap .c.cxcv.
+
+    _ ¶Water of Walnut leues.
+Capitulum c.xcvi.
+
+    _ ¶Water of rotes of nettelles,
+Capitulum .c.••vii.
+
+    _ ¶Water of nettell ſedes Ca .c.viii.
+
+    _ ¶Water of netteles Ca .c.xcix.
+
+    _ ¶Water of Eufraſye / or iyen cōfort
+Capitulum .c.
+
+    _ ¶Water of ſme•wort. Ca .cc.i.
+
+    _ ¶Water of Sage Cap .cc.ii.
+
+    _ ¶Water of the herbe Bugloſſa
+Capitulum .c.iii.
+
+    _ ¶Water of crabbes. Ca .cc.iiii.
+
+    _ ¶Water of apples. Ca .ccv.
+
+    _ ¶Water of flowres of apples
+Capitulum .cc.vi.
+
+    _ ¶Water of Oxce blode. Ca .cc.vii.
+
+    _ ¶Water of muſcherons. Ca .viii.
+
+    _ ¶water of percely Ca .cc.ix.
+
+    _ ¶water of the pypes of dandelyon.
+Capitulum .cc.x.
+
+    _ ¶Water of the flowres capitis monacht
+Capitu. cc.xi.
+
+    _ ¶water of peche leuys. Cap .cc.xii.
+
+    _ ¶Water of petches flowres.
+Capitulum. .cc.iiii.
+
+    _ ¶Water of Brome flowres.
+Capitulum cc.xiiii.
+
+    _ ¶ater of perſicatia.
+Capitulum .cc.xv.
+
+    _ ¶Water of Scabyoſe female,
+Cap .cc.xvi.
+
+    _ ¶Water of our lady bedſtrawe
+Cap .cc.xxii.
+
+    _ ¶Water of radices Hermodactili.
+Capitulum .cc.xviii.
+
+    _ ¶Water of the flowres of hermodartili
+Cap .cc.xix.
+
+    _ ¶Water of Iuce of the •yte.
+Capitulum .cc.xx.
+
+    _ ¶water of vy•e lettes Cap .cc.xxi.
+
+    _ ¶water of the gall of an ox•e.
+Capitulum cc.xxii.
+
+    _ ¶Water of marygoldes
+Capi .cc.xxiii.
+
+    _ ¶Water of Radyee Ca .cc.xxiiii.
+
+    _ ¶water of Ieues of Raffani
+Capitulum. cc.xxv.
+
+    _ ¶Water of Roſemary Ca .cc.xxvi.
+
+    _ ¶Water of tanſey Ca .cc.xxvii.
+
+    _ ¶Water of coole worte Ca .cc.xxviii.
+
+    _ ¶Water of rede Cooles
+Capitulum cc.xxix.
+
+    _ Water of Rue or of herbe glace.
+
+    _ ¶Water of grounde wormes.
+Capitulum cc.xxxi.
+
+    _ ¶Water of Conſolyda regalis.
+Capitulum cc.xxxii.
+
+    _ ¶Water of zizania Cap .cc.xxxiii.
+
+    _ ¶Water of wylde roſes. Ca▪ cc.xxxiiii
+
+    _ ¶Water of the rede Roſes.
+Capitulum cc.xxxv.
+
+    _ ¶Water of ſame whyte roſes
+Capitulum .cc.xxxvi.
+
+    _ ¶Water of the Eglentyne roſes.
+
+    _ ¶Water of the buddes of the roſes
+Capitulum cc.xxxviii▪
+
+    _ ¶Water of pyonye roſes Ca .ccxxxix
+
+    _ ¶Water of nauis. Ca .cc.xl.
+
+    _ ¶Ware of Cheryſes Ca .cc.xli.
+
+    _ ¶Water of blacke Cheryſes
+Capitulum cc.xiii.
+
+    _ ¶Water of ſtorkes. Ca .cc.xliii.
+
+    _ ¶Water of hogges blode. Ca .cc.xliiii
+
+    _ ¶Water of ſaynt Iohn̄s worte.
+Capitulum cc.xlv.
+
+    _ ¶water of Satyryon. Ca .cc.xlvi
+
+    _ ¶Water of palma Chriſti.
+Capitulum ccxlvii.
+
+    _ ¶Water of corona regia. Ca .ccxlviii
+
+    _ ¶Water of fayne Criſtofels worde.
+Capitulum cc.xlix.
+
+    _ ¶Water of Nenufaris. Ca .cc.l.
+
+    _ ¶Water of Saxifrage.
+Capitulum .cc.li
+
+    _ ¶Water of Scabyoſe Ca .cc.lii.
+
+    _ ¶Water of the great Sage.
+Chapiter .cc.liii.
+
+    _ ¶Water of Dayſy Ca .cc.liiii
+
+    _ ¶Water of Synd•we Ca .cc.lv.
+
+    _ ¶Water of Lappa minor whiche be
+ſharpe burres. Ca .cc.ivi.
+
+    _ ¶Water of Abrotanom Ca .ccl.vii
+
+    _ ¶Water of erth ſnalles. Ca .cc.lviii
+
+    _ ¶Water of ſmall plantayne
+Capitulum cc.lixi
+
+    _ ¶Water of Celendyne. Ca .cc.lx.
+
+    _ ¶Water of on•ype ſlooſe Ca .cc.lx•
+
+    _ ¶Water of the flowres of ſlooſe
+Capitulum cc.lxii.
+
+    _ ¶Water of berberyes Ca .cc.lxiii.
+
+    _ ¶water of Saueyn. Ca .cc.lxiiii.
+
+    _ ¶Water of moſtard ſede. Ca .cclxv
+
+    _ ¶Water of paritaria Ca .cc.lxvi.
+
+    _ ¶Water of Spargus. Ca .cc.lxvii
+
+    _ ¶Water of Fuſamus Ca .cclxviii.
+
+    _ ¶Water of Cathapucia Ca .ce.lxix.
+
+    _ ¶Water of Origanum Ca .cc.lxx.
+
+    _ ¶Water of Tor••ntill•
+Capitulum cc.lxxi.
+
+    _ ¶Water of ſhepeherde•s purſe.
+
+    _ ¶Water of Dodyr Ca .cc.lxxlii.
+
+    _ ¶water of Tamariſcus Ca .cc.lxxiiii.
+
+    _ ¶Water of wor••wode.
+Capitulum cc.lxxv.
+
+    _ ¶Water of waltworte cots,
+Capitulum cc.lxxvi,
+
+    _ ¶water of wyllowe leue•
+Capitulum cc.lxxvi.
+
+    _ ¶Water of wyllowe flowres
+Capitulum cc.lxxviii.
+
+    _ ¶Water of henlocke. Ca cc.lxixx
+
+    _ ¶Water of woodwyne Ca .cc.lxxx.
+
+    _ ¶Water of wood wyne flowres
+Capitulum cc.lxxxi.
+
+    _ ¶Water of the herbe of gowles or
+cuddes. Cap .cc.lxxxii.
+
+    _ ¶Water of Cicorea flowres.
+Capitulum cc.lxxxiii.
+
+    _ ¶Water of Tapſus barbatus.
+
+    _ ¶Water of ſwynes graſſe or knot
+graſſe, Capitulum cc.lxxxv.
+
+    _ ¶Water of Salamons ſeale
+Capitulum cclxxxvi.
+
+    _ ¶Water of wild ſage Ca .cc.lxxxvii
+
+    _ ¶Water of Pirola Ca .cc.lxxxviii.
+
+    _ ¶Water of 〈◊〉 Ca .ii.lxxxix.
+
+    _ ¶Water of Clarey Ca .cc.xc.
+
+    _ ¶Water of Eſula. Ca .cc.xci.
+
+    _ ¶Water of whyte Lylles. Ca .ccxcii.
+
+    _ ¶Water of whyte lylle rotes
+Capitu. cc.xciil.
+
+    _ ¶water of the leues and the roots of
+whyte Lylles. Ca cc.xcuii.
+
+    _ ¶Water of maydē here Ca .cc.xcv
+
+    _ ¶water of matriſilua. Ca .ccxxvii.
+
+    _ ¶water of wylde ſaffran
+Capitulum cc.xcviii
+
+    _ ¶water of the rotes of pelether.
+Capitulum cc.xcix.
+
+    _ ¶Water of the herbe of pelether.
+Capitylum .ccc.
+
+    _ ¶Water of Azara alba. Ca .ccci
+
+    _ ¶Water of Amara dulcis. Ca .cccii
+
+    _ ¶Water of comō onyōs. Ca .ccc.iii.
+
+    _ ¶Water of Daſyes herbe / and water
+of pryme roſes. Ca .ccc.iiii.
+
+    _ ¶Water of Viticella. Ca .ccc.v.
+
+    _ ¶A fayre addicyon of an other mayſter
+of the vertue of aqua vite whiche
+is made of wyne / or of feces of wyne.
+
+    _ ¶Here begynneth the vertues of the
+aquavite
+
+    _ ¶Aqua vite compoſita.
+
+    _ ¶A preyous water for Lepry
+
+    _ ¶Brome flowre water.
+
+    _ ¶Dama••e water and oyle
+
+    _ ¶Water of plāta leonis / or pedelyon
+
 #####Back#####
-The vertuose boke of distyllacyon of the waters of all maner of herbes with the fygures of the styll
+¶Imprinted at London in the flete
+ſtrete by me Laurens Andrewe / in
+the ſygne of the golden Croſſe. 
 **Types of content**
 
   * There are 4 **verse** lines!
